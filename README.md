@@ -7,4 +7,3 @@ I'm constantly learning, building, and growing — and I'm always open to both g
 🔹 I'm excited about blockchain development and modern web technologies.
 🔹 Currently sharpening my skills through hands-on projects and continuous learning.
 
-If you have advice, ideas, or just want to connect — feel free to reach out!
